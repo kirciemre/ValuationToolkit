@@ -29,4 +29,4 @@ We value your trust in providing us your information, thus we strive to use comm
 
 ## 5. Contact Us
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at [Your Email Address].
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at kirci2@illinois.edu
